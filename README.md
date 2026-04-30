@@ -1,5 +1,17 @@
 ## Hi there 👋
 
+It's me, Sensen, not anybody else.
+
+我是森森，这是我的GitHub账户。
+
+我的人格特点比较随机，MBTI中四个维度全在五成上下。
+
+我愿称之为量子化人格。
+
+如果你想联系我，请走 1480855159@qq.com
+
+努力学习，共同进步！
+
 <!--
 **SensenMeng/SensenMeng** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
