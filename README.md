@@ -8,7 +8,7 @@ It's me, Sensen, not anybody else.
 
 我愿称之为量子化人格。
 
-如果你想联系我，请走 1480855159@qq.com
+如果你想联系我，请走 xianghangmeng@stu.xjtu.edu.cn
 
 努力学习，共同进步！
 
